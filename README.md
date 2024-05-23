@@ -12,6 +12,8 @@ he / they / it
 
 20 y/o design student
 
+awesome ponytown rper and sometimes i host!
+
 . . .
 
 welcome to my awesome readme !!
