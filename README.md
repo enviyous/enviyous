@@ -52,9 +52,9 @@ ___
 
 <p>i am quite shy actually! i'm trying to get over my fear of people and all that.<br>
 sometimes i speak very weirdly!! its just the way i am!! i speak english fine and also SOME russian and french!<br>
-if i am AFK... you can whisper me, or put a message to my guest book!<br>
+if i am AFK... you can whisper me!<br>
 i am cryptic, i am honest, when i speak i am usually joking. if you need tonetags just ask!<br>
-in rp, sometimes ppl come back to me with previous ships. that is fine! but they will not be canon/permanent!!<br>
+in rp, sometimes ppl come back to me with previous ships. that is fine! but they will not be canon/permanent unless i say so!!<br>
 flirting is fine as long as you are aware that it will not go anywhere!</p>
 
 ___
