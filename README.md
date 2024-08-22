@@ -63,8 +63,6 @@ if you want you can read my secret extra [carrd](https://ken10.carrd.co/), it ha
 
 > ᛪ﹕[ *please treat yourself and others kindly. :-)* ] 
 
-[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=vg3q8viw14mel762kdrt6pw1e&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=4c56ae&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com)
-
 ___
 
 <img src="https://64.media.tumblr.com/4654f3f2455b8bdec817f7197efd9586/9877539ca421ad39-b7/s75x75_c1/ccd80ba3cb74c34b677c7ebacab88a77b63c2704.gifv" width="20"> ***STAMPS!!:***
