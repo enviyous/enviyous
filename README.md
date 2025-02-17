@@ -7,7 +7,7 @@
 ![a metal sonic banner. he's reaching out with one hand, while the other hand scrapes the wall, with a sound effect that reads "SCRAAACK".](https://i.imgur.com/GQPg1cq.jpeg)
 
 . . .
-⠀⠀⠀⠀⠀🌀 > ... **IDENTITY**
+> 🌀 > ... **IDENTITY**
 
 KEN / EGGS / ENVY / NICKNAMES
 
