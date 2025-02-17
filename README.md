@@ -7,10 +7,13 @@
 ![a metal sonic banner. he's reaching out with one hand, while the other hand scrapes the wall, with a sound effect that reads "SCRAAACK".](https://i.imgur.com/GQPg1cq.jpeg)
 
 . . .
+⠀⠀⠀⠀⠀🌀 > ... **IDENTITY**
 
-any prns
+genderfluid | any pronouns
 
-20 y/o design student
+pansexual | polyamorous
+
+20 y.o. | 05 / 03
 
 awesome ponytown rper and sometimes i host!
 
