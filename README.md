@@ -6,7 +6,11 @@
 
 ![a metal sonic banner. he's reaching out with one hand, while the other hand scrapes the wall, with a sound effect that reads "SCRAAACK".](https://i.imgur.com/GQPg1cq.jpeg)
 
-hello people! i've been playing pt since 2016. i rp a lot, sit at docks, and i host sometimes. i'm also pretty shy but i hope we can be friends. :-)
+. . .
+
+hello people! i've been playing pt since 2016.
+
+i rp a lot, sit at docks, and i host sometimes. i'm also pretty shy but i hope we can be friends. :-)
 
 . . .
 
