@@ -4,11 +4,11 @@
 
 ★ *HELLO PONYTOWNERS !!* ![a little waving emoticon.](https://64.media.tumblr.com/be1612baf7168969ba3b682cf6b37e7d/8942c8727f65e719-f2/s75x75_c1/ee0885537392edf3907d1bd3b47f59e073a7555a.gifv) 
 
-![sal and larry from the game sally face headbanging together](https://64.media.tumblr.com/ccd01068ddc040df934036ca20a5b519/98d1c9232d529414-25/s640x960/90a81a05335d3ac5566539f25fdbac2a9fd059b8.gifv)
+![a metal sonic banner. he's reaching out with one hand, while the other hand scrapes the wall, with a sound effect that reads "SCRAAACK".](https://i.imgur.com/GQPg1cq.jpeg)
 
 . . .
 
-he / they / it
+any prns
 
 20 y/o design student
 
@@ -20,48 +20,7 @@ welcome to my awesome readme !!
 
 basically the thing is that i am a funny cryptid.  
 
-> ᛪ﹕[ *p.s. i am not actually envy the deadly sin. ...  i just really like the theme of it and also the name.* ]
-
-. . .
-
-★ *YOU WILL PROBABLY SEE ME IN THESE SKINS !!* :
-
-![1](https://64.media.tumblr.com/4e4252df0cddd0d9e03caf1d4a97e52a/3de924847b83c949-46/s250x400/497af65a73ebaf15ff62a49f7142efded97aa18c.gifv) ![2](https://64.media.tumblr.com/4f3b549162aaee70445bcd70c0d39938/3de924847b83c949-36/s250x400/7b83740b2752f2642dd85b71561ce1c8364dbac7.gifv) ![3](https://64.media.tumblr.com/44c8e824d4af0e5b60380b7cb394c215/3de924847b83c949-75/s250x400/7709a1d4309d160a48eb89925fceefdf44a1b511.gifv)
-
-> ᛪ﹕[ *C+H yes yes yes ! i hang out at docks and look for rps all the time lol.* ]
-
-___
-
-<img src="https://64.media.tumblr.com/cf20b41ad314e9ab609d7f142bbc8486/cc0d659612b89b95-b1/s75x75_c1/fe1777c90206fe86d320c2757ec66c5d615a1de4.webp" width="20"> ***DO NOT INTERACT IF:***
-
-
-. . . 
-
-<p>14 & under<br>
-basic dni (proship, zoo, etc.)<br>
-proana<br>
-irl kin<br>
-YBC fans<br>
-cultists</p>
-
-___
-
-<img src="https://64.media.tumblr.com/d180502443320604ecda06914845ea1f/02051dca9b116fea-3e/s75x75_c1/08930a37b75591a30fe842418f418ce713bf4ea1.gifv" width="20"> ***BEFORE YOU INTERACT:***
-
-. . .
-
-<p>i am quite shy actually! i'm trying to get over my fear of people and all that.<br>
-sometimes i speak very weirdly!! its just the way i am!! i speak english fine and also SOME russian and french!<br>
-if i am AFK... you can whisper me!<br>
-i am cryptic, i am honest, when i speak i am usually joking. if you need tonetags just ask!<br>
-in rp, sometimes ppl come back to me with previous ships. that is fine! but they will not be canon/permanent unless i say so!!<br>
-flirting is fine as long as you are aware that it will not go anywhere!</p>
-
-___
-
-if you want you can read my secret extra [carrd](https://ken10.carrd.co/), it has more info! 
-
-> ᛪ﹕[ *please treat yourself and others kindly. :-)* ] 
+> ★﹕[ *please be kind !* ]
 
 ___
 
