@@ -22,9 +22,9 @@ pansexual | polyamorous
 
 . . .
 
-welcome to my awesome readme !!
+> 🌀 > ... **MORE INFORMATION**
 
-basically the thing is that i am a funny cryptid.  
+
 
 > ★﹕[ *please be kind to yourselves and others.* ]
 
