@@ -9,13 +9,13 @@
 . . .
 ⠀⠀⠀⠀⠀🌀 > ... **IDENTITY**
 
-genderfluid | any pronouns
-
-pansexual | polyamorous
+KEN / EGGS / ENVY / NICKNAMES
 
 20 y.o. | 05 / 03
 
-awesome ponytown rper and sometimes i host!
+genderfluid | any pronouns
+
+pansexual | polyamorous
 
 . . .
 
