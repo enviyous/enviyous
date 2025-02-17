@@ -1,4 +1,4 @@
-# ★ KEN / SAL / ENVY !!!!
+# ★ KEN / EGGS / ENVY !!!!
 
 ![](https://komarev.com/ghpvc/?username=enviyous&color=orange&style=for-the-badge&label=LOOKERS)
 
@@ -20,7 +20,7 @@ welcome to my awesome readme !!
 
 basically the thing is that i am a funny cryptid.  
 
-> ★﹕[ *please be kind !* ]
+> ★﹕[ *please be kind to yourselves and others.* ]
 
 ___
 
