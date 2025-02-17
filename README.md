@@ -30,6 +30,8 @@ pansexual | polyamorous
 
 <a href="https://envyous.carrd.co/">⎋</a> CARRD >> same deal diff format
 
+. . .
+
 > ★﹕[ *please be kind to yourselves and others.* ]
 
 ___
