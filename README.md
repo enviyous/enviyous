@@ -24,8 +24,9 @@ pansexual | polyamorous
 
 > 🌀 > ... **MORE INFORMATION**
 
+. . .
 
-<a href="https://listography.com/ken10/%E2%99%9E/-_for_horses">LISTO</a> >> DNI, BYI, ETC. | <a href="https://envyous.carrd.co/">CARRD</a> >> same deal diff format
+<a href="https://listography.com/ken10/%E2%99%9E/-_for_horses">⎋</a> LISTO >> DNI, BYI, ETC.   |   <a href="https://envyous.carrd.co/">⎋</a> CARRD >> same deal diff format
 
 > ★﹕[ *please be kind to yourselves and others.* ]
 
