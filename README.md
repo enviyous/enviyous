@@ -8,9 +8,12 @@
 
 . . .
 
-hello people! i've been playing pt since 2016.
+> 🌀 > ... **LINKS**
+. . .
 
-i rp a lot, sit at docks, and i host sometimes. i'm also pretty shy but i hope we can be friends. :-)
+<a href="https://listography.com/ken10/%E2%99%9E/-_for_horses">⎋</a> LISTO :: DNI, BYI, ETC.
+
+<a href="https://envyous.carrd.co/">⎋</a> CARRD :: same deal diff format
 
 . . .
 
@@ -28,13 +31,9 @@ pansexual | polyamorous
 
 . . .
 
-> 🌀 > ... **MORE INFORMATION**
+hello people! i've been playing pt since 2016.
 
-. . .
-
-<a href="https://listography.com/ken10/%E2%99%9E/-_for_horses">⎋</a> LISTO :: DNI, BYI, ETC.
-
-<a href="https://envyous.carrd.co/">⎋</a> CARRD :: same deal diff format
+i rp a lot, sit at docks, and i host sometimes. i'm also pretty shy but i hope we can be friends. :-)
 
 . . .
 
