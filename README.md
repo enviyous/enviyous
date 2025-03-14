@@ -16,6 +16,8 @@
 
 <a href="https://envyous.carrd.co/">⎋</a> CARRD :: same deal diff format
 
+<a href="https://ken10.straw.page/">⎋</a> STRAWPAGE :: PLEASE SEND YOUR BEAUTIFUL ART!!!!
+
 <a href="https://eggs.atabook.org/">⎋</a> ATABOOK :: PLEASE SIGN!!!!! I WANT MESSAGES ON MY BOARD SEND ANYYTHINGGGG
 
 . . .
