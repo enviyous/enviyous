@@ -28,7 +28,7 @@
 
 KEN / EGGS / ENVY / NICKNAMES
 
-20 y.o. | 05 / 03
+21 y.o. | 05 / 03
 
 genderfluid | any pronouns
 
