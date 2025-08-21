@@ -4,7 +4,7 @@
 
 ★ *HELLO PONYTOWNERS !!* ![a little waving emoticon.](https://64.media.tumblr.com/be1612baf7168969ba3b682cf6b37e7d/8942c8727f65e719-f2/s75x75_c1/ee0885537392edf3907d1bd3b47f59e073a7555a.gifv) 
 
-![dogy.](https://i.ibb.co/SDWLsHsv/image.png)
+![dogy.](https://ibb.co/wZ3v0806)
 
 . . .
 
