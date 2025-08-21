@@ -44,6 +44,9 @@ i rp a lot, sit at docks, and i host sometimes. i'm also pretty shy but i hope w
 
 > ★﹕[ *please be kind to yourselves and others.* ]
 
+
+![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=eggss&count=1&show_user=header&header_style=compact_stats_only&footer_style=wave&bg_color=000000)
+
 ___
 
 <img src="https://64.media.tumblr.com/4654f3f2455b8bdec817f7197efd9586/9877539ca421ad39-b7/s75x75_c1/ccd80ba3cb74c34b677c7ebacab88a77b63c2704.gifv" width="20"> ***STAMPS!!:***
