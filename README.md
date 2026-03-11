@@ -2,7 +2,7 @@
 
 > ---
 
-<p align=centre> ⠀**eggs**  /  ken  /  nicknames 
+ ⠀**eggs**  /  ken  /  nicknames 
  
 ⠀ ★ )  [**21 y/o**]() . 05 / 03
 
