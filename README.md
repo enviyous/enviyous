@@ -1,6 +1,6 @@
 # ★ EGGS !!!!
 
-![](https://imgur.com/o8RYXba)
+![](https://i.imgur.com/o8RYXba.png)
 
 ![](https://komarev.com/ghpvc/?username=enviyous&color=orange&style=for-the-badge&label=LOOKERS)
 
