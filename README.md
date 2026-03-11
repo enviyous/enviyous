@@ -2,7 +2,7 @@
 
 > ---
 
-![](https://i.imgur.com/xr3mQpC.png#120x120) ⠀**eggs**  /  ken  /  nicknames 
+ ⠀**eggs**  /  ken  /  nicknames 
 ⠀ ★ )  [**21 y/o**]() . 05 / 03
 ⠀ *any prns*  &  genderfluid
 
