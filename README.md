@@ -1,18 +1,14 @@
 # ★ EGGS BENEDICT, HERE !!!!
 
-. . .
+> ---
 
-KEN / EGGS / NICKNAMES
+![](https://i.imgur.com/xr3mQpC.png#120x120) ⠀**eggs**  /  ken  /  nicknames 
+⠀ ★ )  [**21 y/o**]() . 05 / 03
+⠀ *any prns*  &  genderfluid
 
-21 y.o. | 05 / 03
+> ---
 
-genderfluid | any pronouns
-
-pansexual | polyamorous
-
-. . .
-
-![](https://i.imgur.com/o8RYXba.png)
+![](https://i.imgur.com/QfXLSET.png)
 
 . . .
 
