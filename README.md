@@ -4,20 +4,21 @@
   <link href="https://fonts.googleapis.com/css2?family=Bytesized&family=Syne+Mono&display=swap" rel="stylesheet">
 </head>
 
-<body>
+<p align="center">
+$\textcolor{#81858F}{\text{─── ･ ｡ﾟ⟡ 🌀 ⟡ ˚｡ ･ ───}}$
+</p>
 
-` ─── ･ ｡ﾟ⟡ 🌀 ⟡ ˚｡ ･ ─── `
-
-
-<p style="color:blue; text-align:center;">
- 
- <b>eggs</b>  /  ken  /  nicknames
- 
-★ )  [**21 y/o**]() . 05 / 03
-
-*any prns*  &  genderfluid
+<p align="center">
+$\textcolor{#e3e6ff}{\text{eggs  /  ken  /  nicknames}}$<br>
+$\textcolor{#e3e6ff}{\text{★ )  21 y/o . 05 / 03}}$<br>
+$\textcolor{#e3e6ff}{\text{any prns  +  genderfluid}}$
 
 </p>
+
+<p align="center">
+$\textcolor{#81858F}{\text{★﹕[ please be kind to yourselves and others. ]}}$
+</p>
+
 
  --- 
 
@@ -37,12 +38,8 @@ i rp a lot, sit at docks, and i host sometimes. i'm also pretty shy but i hope w
 
 this has also become a bit of a coding account... haha...
 
- --- 
- 
-> ★﹕[ *please be kind to yourselves and others.* ]
-
+---
 
 ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=eggss&count=1&show_user=header&header_style=compact_stats_only&footer_style=wave&bg_color=000000)
-</body>
 
 
