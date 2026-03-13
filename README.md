@@ -6,6 +6,8 @@
 
 <div align="center">
 
+---
+
 <img src="https://i.imgur.com/AwK205q.png" alt="lil cheese" width="150" height="150">
 
 $\textcolor{#81858F}{\text{(  i see you there...  )}}$
@@ -41,7 +43,7 @@ $\textcolor{#81858F}{\text{─── ･ ｡ﾟ⟡ 🌀 ⟡ ˚｡ ･ ───}
     $\textcolor{#81858F}{\textsf{✦ about me}}$
   </summary>
   
-  $\textcolor{#0047FF}{\textsf{── ⟢ ・⸝⸝}}$
+  $\textcolor{#4E4F54}{\textsf{── ⟢ ・⸝⸝}}$
   
 $\textcolor{#ABACB8}{\text{hello people! i've been playing since 2016.}}$<br>
 
@@ -51,7 +53,51 @@ $\textcolor{#ABACB8}{\text{this has also become a bit of a coding account... hah
 
 </details>
 
+<details>
+  <summary>
+    $\textcolor{#81858F}{\textsf{✦ dni . byi}}$
+  </summary>
 
+  $\textcolor{#4E4F54}{\textsf{── ⟢ ・⸝⸝}}$
+
+**DNI** ..
+
+$\textcolor{#ABACB8}{\text{15 + under (unless a pal.)}}$<br>
+$\textcolor{#ABACB8}{\text{T.R.A.S.H}}$<br>
+$\textcolor{#ABACB8}{\text{energy vampires . constant venters}}$<br>
+$\textcolor{#ABACB8}{\text{proana . proshitters}}$<br>
+$\textcolor{#ABACB8}{\text{endogenics + plurality truthers}}$<br>
+$\textcolor{#ABACB8}{\text{cultists . cult romanticizers}}$<br>
+
+$\textcolor{#81858F}{\textsf{★﹕[ i block and hide freely. ]}}$
+
+  $\textcolor{#4E4F54}{\textsf{── ⟢ ・⸝⸝}}$
+
+**BYI** ..
+
+$\textcolor{#ABACB8}{\text{just to make it very clear i am an adult!}}$<br>
+$\textcolor{#ABACB8}{\text{VERY aroace + married lol. if i flirt or make a suggestive joke tis most likely for funsies.}}$<br>
+$\textcolor{#ABACB8}{\text{i'm pretty quiet. tend to talk funny.}}$<br>
+$\textcolor{#ABACB8}{\text{i am cryptic. i am honest. if you'd like me to clarify something anyways, just tell me!! i will not be bothered.}}$<br>
+  
+</details>
+
+<details>
+  <summary>
+      $\textcolor{#81858F}{\textsf{✦ interests . int}}$
+  </summary>
+
+  $\textcolor{#4E4F54}{\textsf{── ⟢ ・⸝⸝}}$
+
+
+  
+</details>
+
+$\textcolor{#81858F}{\text{─── ･ ｡ﾟ⟡ 🌀 ⟡ ˚｡ ･ ───}}$
+
+---
+
+![](https://i.imgur.com/mn8Sqdm.png)
 
 ---
 
