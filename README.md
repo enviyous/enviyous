@@ -89,9 +89,49 @@ $\textcolor{#ABACB8}{\text{i am cryptic. i am honest. if you'd like me to clarif
 
   $\textcolor{#4E4F54}{\textsf{── ⟢ ・⸝⸝}}$
 
+  **GAMES**
 
+$\textcolor{#ABACB8}{\text{great god grove . dandy's world . deltarune}}$<br>
+$\textcolor{#ABACB8}{\text{spiritfarer . sky cotl . parappa . patapon}}$<br>
+$\textcolor{#ABACB8}{\text{smile for me . sally face . friday night funkin}}$<br>
+$\textcolor{#ABACB8}{\text{vibribbon . hollow knight . silksong . bingo lol}}$<br>
+
+  $\textcolor{#4E4F54}{\textsf{── ⟢ ・⸝⸝}}$
+
+  **SHOWS**
   
+$\textcolor{#ABACB8}{\text{my student spirit . 13 cards . dick figures}}$<br>
+$\textcolor{#ABACB8}{\text{the eltingville club . spooky month . ena}}$<br>
+$\textcolor{#ABACB8}{\text{ok k.o. . trolls . saiki k . south park}}$<br>
+
+  $\textcolor{#4E4F54}{\textsf{── ⟢ ・⸝⸝}}$
+
+ **MUSIC**
+
+$\textcolor{#ABACB8}{\text{psychedelic porn crumpets . sonic youth . sprints}}$<br>
+$\textcolor{#ABACB8}{\text{dutch melrose . DVRST . deftones . gorillaz}}$<br>
+$\textcolor{#ABACB8}{\text{hail the sun . dry cleaning . sprints . of montreal}}$<br>
+$\textcolor{#ABACB8}{\text{the dead milkmen . jazz spastiks . mother mother}}$<br>
+$\textcolor{#ABACB8}{\text{k.d. lang . aurora . tom waits . haley heynderickx}}$<br>
+
+
 </details>
+
+<details>
+  <summary>
+    $\textcolor{#81858F}{\textsf{✦ links}}$
+  </summary>
+
+  $\textcolor{#4E4F54}{\textsf{── ⟢ ・⸝⸝}}$
+
+[tumblr](https://toastlyeggs.tumblr.com/) . [spacehey](https://spacehey.com/ken10) . [last.fm](https://www.last.fm/user/eggss)
+
+[listo](https://listography.com/ken10) . [alt listo](https://listography.com/bellay) . [atabook](https://eggs.atabook.org/)
+
+[tiktok](https://www.tiktok.com/@scramby6) . [bsky](https://bsky.app/profile/scramby.bsky.social) . [carrd](https://ken10.carrd.co/)
+
+</details>
+
 
 $\textcolor{#81858F}{\text{─── ･ ｡ﾟ⟡ 🌀 ⟡ ˚｡ ･ ───}}$
 
@@ -101,9 +141,28 @@ $\textcolor{#81858F}{\text{─── ･ ｡ﾟ⟡ 🌀 ⟡ ˚｡ ･ ───}
 
 ---
 
-<img src="https://i.imgur.com/HSEDPkT.png" alt="potknob image" width="500" height="500">
+<details>
+  <summary>
+$\textcolor{#00CDE0}{\textsf{★﹕[ " ALL NIGHT, FOREVER! " ]}}$
+  </summary>
+  
+  $\textcolor{#4E4F54}{\textsf{── ⟢ ・⸝⸝}}$
+
+$\textcolor{#ABACB8}{\textsf{i bet you're curious about my little guy!}}$<br>
+
+$\textcolor{#ABACB8}{\textsf{this is P0T-KN0B, my oc. he's a dancing robot!}}$<br>
+
+$\textcolor{#ABACB8}{\textsf{please don't take these graphics, as they are all mine.}}$<br>
+  
+</details>
+
+
+<img src="https://i.imgur.com/HSEDPkT.png" alt="potknob image" width="500" height="500"> <img src="https://i.imgur.com/JmLfSVu.gif" alt="turndisk" width="400">
+
 
 ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=eggss&count=1&show_user=header&header_style=compact_stats_only&footer_style=wave&bg_color=000000)
+
+<img src="https://i.imgur.com/7bHWo6m.gif" alt="equalizer gif" width="400"><br>
 
 </div>
 
