@@ -8,9 +8,22 @@
 
 ---
 
+<details>
+  <summary>
+$\textcolor{#00CDE0}{\textsf{★﹕[ " HEY... YOU THERE!! " ]}}$
+  </summary>
+
+  $\textcolor{#4E4F54}{\textsf{── ⟢ ・⸝⸝}}$
+
+$\textcolor{#ABACB8}{\text{i know i use this for irl school stuff... if you're my professor... just ignore all this please? lol.}}$<br>
+
+  $\textcolor{#4E4F54}{\textsf{── ⟢ ・⸝⸝}}$
+
+</details>
+
 <img src="https://i.imgur.com/AwK205q.png" alt="lil cheese" width="150" height="150">
 
-$\textcolor{#81858F}{\text{(  i see you there...  )}}$
+$\textcolor{#81858F}{\text{(  i see you... sneaky peaky...  )}}$
 
 ![](https://komarev.com/ghpvc/?username=enviyous&color=0011FF&style=plastic&label=LOOKERS) ![a little waving emoticon.](https://64.media.tumblr.com/be1612baf7168969ba3b682cf6b37e7d/8942c8727f65e719-f2/s75x75_c1/ee0885537392edf3907d1bd3b47f59e073a7555a.gifv) 
 
@@ -157,8 +170,7 @@ $\textcolor{#ABACB8}{\textsf{please don't take these graphics, as they are all m
 </details>
 
 
-<img src="https://i.imgur.com/HSEDPkT.png" alt="potknob image" width="500" height="500"> <img src="https://i.imgur.com/JmLfSVu.gif" alt="turndisk" width="400">
-
+<img src="https://i.imgur.com/HSEDPkT.png" alt="potknob image" width="500" height="500"><br>
 
 ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=eggss&count=1&show_user=header&header_style=compact_stats_only&footer_style=wave&bg_color=000000)
 
